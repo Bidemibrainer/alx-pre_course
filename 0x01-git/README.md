@@ -1,1 +1,1 @@
-i have a new idea
+UPDATED README. i have a new idea
